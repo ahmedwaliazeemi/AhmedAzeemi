@@ -38,8 +38,9 @@ B.S. in Business Administration — *May 2021*
 ## 📬 Let's Connect
 
 - 💌 [Ahmedwaliazeemi1@gmail.com](mailto:Ahmedwaliazeemi1@gmail.com)  
-- 💼 [LinkedIn (add your link here)](#)  
-- 📁 [Resume (upload as PDF later)](#)
+- 💼 [LinkedIn [(https://www.linkedin.com/in/ahmed-azeemi-2ba398144/)](#)  
+- 📁 [Resume (ahmed)[Ahmed Azeemi Approved Resume.docx](https://github.com/user-attachments/files/21582939/Ahmed.Azeemi.Approved.Resume.docx)](#)
+
 
 ---
 
